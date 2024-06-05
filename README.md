@@ -1,1 +1,2 @@
-# Journal08-607062300091-Yehezkiel-Theysa-Fredy
+Nama : Yehezkiel Theysa Fredy
+NIM : 607062300091
